@@ -8,7 +8,7 @@ I am a rising senior at Plano East Senior High School...
 
 ## Research Interests
 
-- 
+- Biology/Nueroscience
 
 ## Hobbies
 
