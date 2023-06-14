@@ -4,7 +4,7 @@ layout: homepage
 
 ## About Me
 
-I am a Ph.D. student at ...
+I am a rising senior at Plano East Senior High School...
 
 ## Research Interests
 
